@@ -134,3 +134,5 @@
 <a href="https://appline.ro/"> </a>
 <a href="https://ziarplus.ro/"> </a>
 <a href="https://talentat.ro/"> </a>
+<a href="https://sizemsg.com/"> </a>
+<a href="https://planetazur.com/"> </a>
