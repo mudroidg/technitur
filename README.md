@@ -139,3 +139,5 @@
 <a href="https://www.blocknewsint.com/"> </a>
 <a href="https://www.citiustech.com/"> </a>
 <a href="https://successfulblackparenting.com/"> </a>
+<a href="https://bcg.us.com/"> </a>
+<a href="https://kqbd.club/"> </a>
