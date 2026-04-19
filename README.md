@@ -220,3 +220,5 @@
 <a href="https://punzcopy.com/"> </a>
 <a href="https://punsloverz.com/"> </a>
 <a href="https://dreameaninng.com/"> </a>
+<a href="https://cleverlynames.com/"> </a>
+<a href="https://pdmeasurement.com/"> </a>
