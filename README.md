@@ -271,3 +271,6 @@
 <a href="https://www.powerhouseicf.com/"> </a>
 <a href="https://cutt.ly/Vt8grxIt"> </a>
 <a href="https://cutt.ly/xt3ZAIJg"> </a>
+<a href="https://bestwaterheater.com/"> </a>
+<a href="https://warmteshop.com/"> </a>
+
